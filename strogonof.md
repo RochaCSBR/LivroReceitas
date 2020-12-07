@@ -4,7 +4,7 @@
 
 *Chefe Carlitos*
 
- **O mais famoso**
+ **O mais famoso** do Brasil!
 
 
 
